@@ -1,1 +1,2 @@
 # El-mueble-provenzal-franc-s-1610-1792-
+Realizado por carpinteros locales para personas de modesta condición, eludió la ornamentación excesiva. Estas piezas, que eran versiones simplificadas de los estilos Luis XIII, Luis XIV, Luis XV y Luis XVI, estaban realizadas en sólida madera de roble, castaño o árboles frutales. Las camas, alacenas, aparadores, roperos, mesas, sillas y armarios de estilo provenzal francés muestran motivos regionales, pero sus líneas básicas guardan una gran semejanza con los diseños cortesanos originales de los que fueron copiados.
